@@ -48,7 +48,7 @@ Si quieres hablar de código, tecnología, o incluso de viajes y cafés buenos, 
 
 - ✉️ **alexandervelez123456@gmail.com**
 - 🐱‍💻 [Mis proyectos](https://github.com/AlexanderVelez302)
-- 💼 [LinkedIn](https://www.linkedin.com/in/alex-velez-51029a301/)
+- 💼 [LinkedIn](https://www.linkedin.com/in/alexander-velez-51029a301/)
 
 ---
 
